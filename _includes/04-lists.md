@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+My role models.
+1. Mohnish Pabrai
+2. Warren Buffet
